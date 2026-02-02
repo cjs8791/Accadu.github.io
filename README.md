@@ -1,2 +1,3 @@
 # Accadu.github.io
-Domains for sale
+This domain is available for sale.
+Contact: sokolowskicolin [at] gmail [dot] com
